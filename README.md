@@ -1,4 +1,4 @@
-Hi im syntax and codestacks
+Hi im Mangoz
 im a christian!
 game developer!
 and love programming!
